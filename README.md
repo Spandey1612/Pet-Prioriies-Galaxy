@@ -1,1 +1,1 @@
-# Pet-Prioriies-Galaxy
+# Pet-Priorities Galaxy
